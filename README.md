@@ -2,7 +2,8 @@
 Expect free books and our best deals all month. 
 
 # Get your free books below. 
+![The Church Impotent](https://github.com/canonpress/nqn24/blob/8f51a58da729e3a0d593fc38eb3325deb0e10632/Free%20Books%20from%20Canon%20Press/Church%20Impotent.png)
 
-[The Church Impotent: The Feminization of Christianity](http://www.amazon.com/dp/B0D97564CQ?maas=maas_adg_A51E001F47AF4349946A67A20BB3FBA1_afap_abs&ref_=aa_maas&tag=maas&utm_source=twitter) Nov 1-5
+[Download The Church Impotent](http://www.amazon.com/dp/B0D97564CQ?maas=maas_adg_A51E001F47AF4349946A67A20BB3FBA1_afap_abs&ref_=aa_maas&tag=maas&utm_source=twitter). Offer ends Nov 5
 
 [Mere Christendom](http://www.amazon.com/dp/B0C5RKQ7FV?maas=maas_adg_ADF735995788F82590F37FA5D73F27BE_afap_abs&ref_=aa_maas&tag=maas&utm_source=twitter) Nov 4-8
